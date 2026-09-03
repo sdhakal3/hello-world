@@ -1,1 +1,1 @@
-# CSCI_3087
+My name is Sejan. I like to listen to music and collect CDs!
